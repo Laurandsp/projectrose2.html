@@ -10,6 +10,6 @@ Meu nome é Laura Nery
 
 00001101296896sp@al.educacao.sp.gov.br
 
-![https://images.app.goo.gl/3xzwTey17TqMCV3f8](link)
+
 
  
